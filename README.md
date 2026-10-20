@@ -1,4 +1,4 @@
-# Collins Koech
+# Collins K.K.
 
 **Vibe Coder | Web Developer | Aspiring Cybersecurity Professional**
 
